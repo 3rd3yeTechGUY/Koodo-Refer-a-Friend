@@ -1,9 +1,11 @@
 # Koodo-Refer-a-Friend
 
 Why Do I Need Referral To Sign Up?
+
 With referral, you get $25, sometimes doubled to $50 from Koodo Mobile as credit to offset your future POSTPAID bill.
 
 How Does It Work?
+
 Step 1. Go through the following link BEFORE you go sign up with Koodo Mobile
 
 https://referafriend.koodomobile.com/3f2Z4Po-5UYqDPN
