@@ -10,7 +10,7 @@ How Does It Work?
 
 ## Step 1. (BEFORE you go sign up with Koodo Mobile)
 
-https://referafriend.koodomobile.com/3f2Z4Po-5UYqDPN
+https://referafriend.koodomobile.com/3f2Z4Po-5UYqDPN?lang=en
 
 and provide you full name and email on the page above. Once this step is done, there will be an email from Koodo Mobile, which will be needed later.
 
