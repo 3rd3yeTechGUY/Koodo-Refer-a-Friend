@@ -17,9 +17,9 @@ Once this step is done, there will be an email from Koodo Mobile, which will be 
 
 Go to a Koodo Mobile kiosk in a mall, or any third party dealer such as Walmart/Best Buy/The Mobile Shop/London Drugs/WOW Mobile and get your Koodo Mobile phone number as a new customer. Not only new sign-ups, but also port-in, add-a-line, and transferred from Koodo Mobile prepaid are all considered as NEW CUSTOMER.
 
-## Step 3 (Very Important,)
+## Step 3 (Very Important)
 Remember the email we got from Step 1? Find it (maybe in SPAM), and there is a link. Click it and submit your Koodo Mobile phone number. That’s it! All done!
 
 Notes:
-This bonus referral credit only applies to POSTPAID customers. (on a plan)
+This bonus referral credit only applies to POSTPAID customers. (on a monthly plan)
 Just signed up and forgot to take advantage of referral program? No hurt to try. Sometimes Koodo Mobile does give credit to late submission.
