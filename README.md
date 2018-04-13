@@ -1,18 +1,17 @@
 # Koodo-Refer-a-Friend bonus cash
 
-Why Do I Need Referral To Sign Up?
+With a referral, you get $25, sometimes doubled to $50 from Koodo Mobile as credit to offset your future POSTPAID bill.
 
-With referral, you get $25, sometimes doubled to $50 from Koodo Mobile as credit to offset your future POSTPAID bill.
+__Note: From April 13 to May 10, 2018, bonus is $50 !! Enjoy!__
 
-*Note: From April 13 to May 10, 2018, bonus is $50 !! Enjoy!*
-
-How Does It Work?
+How Does It Work? _3 easy steps!_
 
 ## Step 1. (BEFORE you go sign up with Koodo Mobile)
 
 https://referafriend.koodomobile.com/3f2Z4Po-5UYqDPN?lang=en
 
-and provide you full name and email on the page above. Once this step is done, there will be an email from Koodo Mobile, which will be needed later.
+and provide your full name and email on the page above. 
+Once this step is done, there will be an email from Koodo Mobile, which will be needed later.
 
 ## Step 2. 
 
